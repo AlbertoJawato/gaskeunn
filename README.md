@@ -1,1 +1,1 @@
-# mau ambil? 50 ribu  dulu hehe
+# ini postingan pertama saya,mau kalian perbaiki atau di bagusin lagi silahkan asal jangan di acak-acak ya hehe soalnya kalau diacak nanti saya bingung soalnya saya baru terjun ke dunia pemrograman/percodingan jadi masih baru belajar
