@@ -1,1 +1,1 @@
-# ini postingan pertama saya tolong dijaga yaa pliss
+# mau ambil? 50 ribu  dulu hehe
